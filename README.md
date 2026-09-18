@@ -13,7 +13,7 @@
 ## 🧑‍💻 Contact
 
 - LinkedIn: [Omar Jimenez-Diaz]([https://linkedin.com/in/ediomobrendan](https://www.linkedin.com/in/-omarjimenez-diaz/))
-- Email: omarjdiaz@pm.me
+- Email: diaz@omarjd.com
 
 ---
 
